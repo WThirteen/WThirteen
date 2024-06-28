@@ -1,6 +1,6 @@
 # Hi,there is Thirteen.  
 
-* An unremarkable college student.
+* A college student.
 
 * Hope to make progress together.
 
