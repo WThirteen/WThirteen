@@ -1,6 +1,6 @@
 # Hi,there is Thirteen.  
 
-* A college student.
+* A student studying artificial intelligence.
 
 * Hope to make progress together.
 
