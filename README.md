@@ -4,7 +4,6 @@
 
 * Hope to make progress together.
 
-* Need a job.😋
 
 📫: Thirteen.shisan@outlook.com  
 
