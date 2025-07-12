@@ -1,6 +1,6 @@
 # Hi,there is Thirteen.  
 
-* A student studying artificial intelligence.
+* A development engineer.
 
 * Hope to make progress together.
 
